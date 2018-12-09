@@ -1,0 +1,2 @@
+# TRipPlanEastAfrica
+ tourism,hospitality roadtrip
